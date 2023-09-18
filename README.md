@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bradleybradler
+- 👀 I’m interested in learning how to script & making games
+- 🌱 I’m currently learning nothing 😔
